@@ -6,5 +6,5 @@ Saiba mais em [willianjusten.com.br](http://willianjusten.com.br)
 
 Gostou do curso? Ajude com uma doação, até um café vale é valido! 
 
-Instagram: [Erick Aurélio] (instagram.com/erickdu4rte)
+Instagram: [Erick Aurélio] (https://instagram.com/erickdu4rte)
 
